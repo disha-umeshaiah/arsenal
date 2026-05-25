@@ -1,4 +1,4 @@
-Arsenal NorthBank Share 🔴⚪
+#Arsenal NorthBank Share 🔴
 
 Tactical Matchday Transit & Ticket Network
 
